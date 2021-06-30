@@ -8,4 +8,5 @@ I donot know anything about love, maybe it is time to think about it.
 if you have feeling for her, tell her
 time will tell, please donot hurry this time
 love is beautiful
->>>>>>> dev
+Maybe I should go and find a girlfriend and forget about her
+
